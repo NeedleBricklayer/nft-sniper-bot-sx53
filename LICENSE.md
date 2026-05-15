@@ -1,4 +1,4 @@
-# 
+# Get the ultimate nft sniper bot with vip nft sniper bot | mint-detection + whitelist-bypass. Featuring mint-detection and whitelist-bypass, it's the best choice for automated NFT
 
 
 
